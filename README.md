@@ -1,0 +1,1 @@
+# ACDSee-Photo-Editor-Update
